@@ -1,5 +1,5 @@
-## [aoyo blush](https://webmural.com/aoyo)
+## [`NaN` blush](https://webmural.com/nan)
 
-* blue suna
-* blue silk
-* blue webs
+* energy
+* energy
+* energy
